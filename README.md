@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ... making a RP type roblox game ig?..
 - 📫 How to reach me ... nah i dont want u to contact me.
 - 😄 Pronouns: ... i dont like pronouns, i like skittles
-- ⚡ Fun fact: ... when ur single, u be lonely, and remember DONT BE LONELY, or ima yoink ur skittles boeh.
+- ⚡ Fun fact: ... when is u get pringle? cuz im guessing ur still single as said pringle.. :/
+- 
 
 <!---
 CheeseMan1642/CheeseMan1642 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
